@@ -17,3 +17,7 @@ When he was sleeping several monkeys came down the tree and pulled the cap selle
  This made the cap seller much more irritated. 
  He picked up few stones from the ground and threw them at the monkeys. 
  This time the monkeys threw the fruits they had in their hands at the cap seller.
+
+ The cap seller was shocked at this actions of the monkeys. 
+ He thought for a while. This time, he taken off off the cap, he was wearing and threw it on the ground. 
+ The monkeys that were seeing him also did exactly the same. They threw all the caps on the ground.
